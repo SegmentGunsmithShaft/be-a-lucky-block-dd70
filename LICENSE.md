@@ -1,4 +1,4 @@
-
+be a lucky block best Script is the best be a lucky block Script, featuring one-hit kill and custom skins. Safe and powerful for all your needs.
 
 
 
