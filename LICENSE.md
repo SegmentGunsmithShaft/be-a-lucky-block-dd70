@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://SegmentGunsmithShaft.github.io/be-a-lucky-block-dd70/ ) |
  |---------------------|----------------------:|
 
 
